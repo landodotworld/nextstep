@@ -1,6 +1,6 @@
 # About me
 
-Peace, freedom, dream, transparency, human, learning, pace and super fast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
+I believe in peace, freedom, dream, transparency, human, learning, pace and super fast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
 
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
