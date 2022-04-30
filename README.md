@@ -9,7 +9,7 @@ Graduation: Management & Industrial Engeering <br>
 Post-Graduation: Entrepeneurship & Innovation <br>
 Skills: Faster, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
 Experience: >10 years. Last 5 years as food-tech entrepeneur (raised >4m€, >40 people under management, launched Lisbon/Madrid/Porto) <br>
-Expertise: Operations, Build Teams, Data, Business Strategy, Pace Execution
+Expertise: Operations, Leadership, Data, Business Strategy, Pace Execution
 
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
 
