@@ -44,11 +44,11 @@ Type: Sofware, Web3, E-commerce, Markeplaces <br>
 # Know me
 Bellow some contacts of people who know me well. You can ask them anything you want about me.
 
-<a href="https://www.linkedin.com/in/cristinanfonseca/">Cristina Fonseca</a> <br>
-Co-founder Talkdesk | Tech Entrepreneur and Investor
-
 <a href="Cláudia Almeida e Silva">Cláudia Almeida e Silva</a> <br>
 Former Fnac Southern Europe CEO | Board Member at Carrefour
+
+<a href="https://www.linkedin.com/in/mariapvillasboas//">Maria Villas Boas</a> <br>
+Head of Portfolio @ Shilling.vc
 
 <a href="https://www.linkedin.com/in/enriqueapariciobolivar/">Enrique Aparicio Bolívar</a> <br>
 CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
