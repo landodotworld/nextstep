@@ -20,7 +20,7 @@ If we are not adding value leave it allowing you and what you are leaving new op
 Going to Berghain made me feel, in a pragmatic way, openness and freedom. Not because I identify with everything that happens there, but because no one cares about how you present yourself and live. <br>
 Society is standardized and judgmental. Theres a lot of space to find innovation if you get your mind out of this preconceptions. There is no formats for sucess! We are all different, and we can be all valid.
 
-I believe in peace, freedom, dream, transparency, human, learning, pace and super fast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
+My purpose is peace, freedom, dream, transparency, human, learning, pace and super fast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
 
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
