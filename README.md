@@ -12,7 +12,7 @@ Making my start-up made me understand the word overcoming.<br>
 We can do more than what we rationally expect. Believe!
 
 Traveling alone allowed me to go deep and understand what I really feel and learn about myself.<br>
-Find the real source of the pain and the real problem. Find the courage to leave what makes no sense.
+Find the real source of the pain and the real problem and then solve it!
 
 I realized that my start-up was not going down a path that suited my interests at a given time. <br>
 If we are not adding value, leave it and  let new opportunities happen for everyone! Accept that things change over time.
