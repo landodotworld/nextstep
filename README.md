@@ -1,23 +1,23 @@
 # About me
-Living in a farm far from the city was challenging in youth and as life changing during covid. We build our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
+Living on a farm far from the city was challenging in my youth and was life changing during covid. We built our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
 Be confident. It's easier to live accepting!
 
-My niece was born, and my family was reborn.<br>
+My niece was born, and my family was reborn..<br>
 Humans are unique and they can change everything!
 
 My mother had cancer. I was not prepared!<br>
-The bigger the problem, the more important it is to follow the process, focus, creativity, believe and hope.
+The bigger the problem, the more important it is to follow the process, focus, be creative, believe and hope.
 
 Making my start-up made me understand the word overcoming.<br>
 We can do more than what we rationally expect. Believe!
 
-Traveling alone allowed me to go deep and understand what I really feel and learn about myself.<br>
-Find the real source of the pain and the real problem and then solve it!
+Traveling alone allowed me to delve deeper and understand what I really feel and learn much about myself.<br>
+Find the real source of the pain, the real problem and then solve it!
 
 I realized that my start-up was not going down a path that suited my interests at a given time. <br>
 If we are not adding value, we should leave it and let new opportunities happen for everyone! Accept that things change over time.
 
-I don't see myself in everything that happens there, but inside of Berghain you can live openness and freedom. <br>
+I don't see myself in everything that happens there, but inside of Berghain you can live with openness and freedom.<br>
 Society is standardized and judgmental. Preconception blocks innovation. There are no formats for success! 
 
 My purpose is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
