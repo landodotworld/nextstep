@@ -45,22 +45,28 @@ Type: Software, Web3, E-commerce, Markeplaces <br>
 You can ask them anything you want about me.
 
 <a href="https://www.linkedin.com/in/claudia-almeidasilva/">Cláudia Almeida e Silva</a> <br>
-Former Fnac Southern Europe CEO | Board Member at Carrefour
+Former Fnac Southern Europe CEO | Board Member at Carrefour <br>
+> add quote about me from Claudia
 
 <a href="https://www.linkedin.com/in/mariapvillasboas//">Maria Villas Boas</a> <br>
 Head of Portfolio @ Shilling.vc
+> add quote about me from Maria
 
 <a href="https://www.linkedin.com/in/enriqueapariciobolivar/">Enrique Aparicio Bolívar</a> <br>
 CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
+> add quote about me from Enrique
 
 <a href="https://www.linkedin.com/in/humbertoayrespereira/">Humberto Ayres Pereira</a> <br>
 Co Founder & CEO of Rows.com
+> add quote about me from Humberto
 
 <a href="https://www.linkedin.com/in/miguelsantoamaro/">Miguel Santo Amaro</a> <br>
 Co Founder & CEO at Coverflex | Investing at Shilling.vc | Forbes 30under30
+> add quote about me from Miguel
 
 <a href="https://www.linkedin.com/in/giovanni-lavra-12b40457/">Giovanni Lavra</a> <br>
 COO at Uniplaces
+> add quote about me from Giovanni
 
 
 
