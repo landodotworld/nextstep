@@ -44,7 +44,7 @@ Type: Sofware, Web3, E-commerce, Markeplaces <br>
 # Know me
 Bellow some contacts of people who know me well. You can ask them anything you want about me.
 
-<a href="Cláudia Almeida e Silva">Cláudia Almeida e Silva</a> <br>
+<a href="https://www.linkedin.com/in/claudia-almeidasilva/">Cláudia Almeida e Silva</a> <br>
 Former Fnac Southern Europe CEO | Board Member at Carrefour
 
 <a href="https://www.linkedin.com/in/mariapvillasboas//">Maria Villas Boas</a> <br>
