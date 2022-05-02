@@ -43,7 +43,7 @@ Markets: Germany & US <br>
 Type: Software, Web3, E-commerce, Markeplaces <br>
 
 # Know me
-Bellow some contacts of people who know me well. You can ask them anything you want about me.
+You can ask them anything you want about me.
 
 <a href="https://www.linkedin.com/in/claudia-almeidasilva/">Cláudia Almeida e Silva</a> <br>
 Former Fnac Southern Europe CEO | Board Member at Carrefour
