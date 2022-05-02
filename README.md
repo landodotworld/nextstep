@@ -15,7 +15,7 @@ Traveling alone allowed me to go deep and understand what I really feel and lea
 Find the real source of the pain and the real problem and then solve it!
 
 I realized that my start-up was not going down a path that suited my interests at a given time. <br>
-If we are not adding value, leave it and  let new opportunities happen for everyone! Accept that things change over time.
+If we are not adding value, we should leave it and let new opportunities happen for everyone! Accept that things change over time.
 
 I don't see myself in everything that happens there, but inside of Berghain you can live openness and freedom. <br>
 Society is standardized and judgmental. Preconception blocks innovation. There are no formats for success! 
