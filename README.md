@@ -1,5 +1,5 @@
 # About me
-My parent's house was a nightmare during my youth as it was far from the city center. During the covid, this was the opportunity to bring the whole family together in the construction of our <a href="https://www.instagram.com/epicoshouse/">life project.</a>. <br>
+My parent's house was a nightmare during my youth as it was far from the city center. During the covid, this was the opportunity to bring the whole family together in the construction of our <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
 Be confident and believe that everything happens with a reason. It's easier to live like this, accepting!
 
 My niece was born, and my family was reborn. <br>
