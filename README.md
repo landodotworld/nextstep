@@ -18,7 +18,7 @@ It is crucial to find the real source of the pain and the real problem. Find the
 I realized that, for various reasons, my start-up was not going down a path that suited my interests at a given time. I was frustrated, I felt I wasn't adding value, and I decided to leave full time and just stay as a non-executive.<br>
 If we are not adding value, leave it allowing you and what you are leaving to find new opportunities! Accept that things change over time.
 
-Going to Berghain made me feel, in a pragmatic way, openness and freedom. Not because I identify with everything that happens there, but because no one cares about how you present yourself and live.<br>
+Going to Berghain made me feel, in a pragmatic way, openness and freedom. Not because I see myself in everything that happens there, but because no one cares about how you present yourself and live.<br>
 Society is standardized and judgmental. There's a lot of space to find innovation if you get your mind out of these preconceptions. There are no formats for success! We are all different, and we can be all valid.
 
 My purpose is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
