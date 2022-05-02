@@ -1,6 +1,6 @@
 # About me
 Living on a farm far from the city was challenging in my youth and was life changing during covid. We built our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
-Be confident. It's easier to live accepting!
+Be confident. Life is easier when one is accepting!
 
 My niece was born, and my family was reborn.<br>
 Humans are unique and they can change everything!
