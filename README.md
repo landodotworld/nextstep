@@ -9,7 +9,7 @@ My mother had cancer. I was not prepared!<br>
 The bigger the problem, the more important it is to follow the process, focus, creativity, believe and hope.
 
 Making my start-up made me understand the word overcoming.<br>
-We can do more than what we rationally expect. Believe!
+We can do more than what we rationally forecast. Believe!
 
 Traveling alone allowed me to go deep and understand what I really feel and learn about myself.<br>
 Find the real source of the pain and the real problem and then solve it!
