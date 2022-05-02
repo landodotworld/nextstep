@@ -1,5 +1,5 @@
 # About me
-Living on a farm far from the city was challenging in my youth and was life changing during covid. We built our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
+It was challenging to live as a teenager away from the city. Today it is a gift to have this farm as our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
 Be confident! Life is easier when one is accepting.
 
 My niece was born, and my family was reborn.<br>
