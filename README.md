@@ -40,7 +40,7 @@ Find environments aligned with my purpose, strive for long term success and chan
 Location: Berlin <br>
 Stage: Pre-seed to Series B <br>
 Markets: Germany & US <br>
-Type: Sofware, Web3, E-commerce, Markeplaces <br>
+Type: Software, Web3, E-commerce, Markeplaces <br>
 
 # Know me
 Bellow some contacts of people who know me well. You can ask them anything you want about me.
