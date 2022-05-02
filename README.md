@@ -6,7 +6,7 @@ My niece was born, and my family was reborn.<br>
 Humans are unique and they can change everything!
 
 My mother had cancer. I was not prepared!<br>
-The bigger the problem is, the more important it is to follow the process, focus, creativity, believe and hope.
+The bigger the problem, the more important it is to follow the process, focus, creativity, believe and hope.
 
 Making my start-up made me understand the word overcoming.<br>
 We can do more than what we rationally expect. Believe!
