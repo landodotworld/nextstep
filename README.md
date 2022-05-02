@@ -12,7 +12,7 @@ Making my start-up made me understand word overcoming.<br>
 We can do more than what we rationally expect. Believe!
 
 I traveled for 21 days alone in Thailand in the worst phase of my life. Alone and without distractions, we can really go deep and understand what we really feel and learn about ourselves.<br>
-It is crucial to find the real source of the pain and the real problem. Find the courage to leave what makes no sense.
+It is crucial to find the real source of the pain and the real problem. Find the courage to leave what makes no sense for you.
 
 I realized that, for various reasons, my start-up was not going down a path that suited my interests at a given time. I was frustrated, I felt I wasn't adding value, and I decided to leave full time and just stay as a non-executive.<br>
 If we are not adding value, leave it allowing you and what you are leaving to find new opportunities! Accept that things change over time.
