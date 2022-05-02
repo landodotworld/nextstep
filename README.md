@@ -2,7 +2,7 @@
 Living on a farm far from the city was challenging in my youth and was life changing during covid. We built our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
 Be confident. It's easier to live accepting!
 
-My niece was born, and my family was reborn..<br>
+My niece was born, and my family was reborn.<br>
 Humans are unique and they can change everything!
 
 My mother had cancer. I was not prepared!<br>
