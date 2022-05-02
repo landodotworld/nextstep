@@ -35,7 +35,7 @@ Expertise: Operations, Leadership, Data, Business Strategy, Pace Execution
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
 
 # Looking for
-Find environments aligned with my purpose, strive for long term success and change the world. Bellow some keywords with my preferences.
+Find environments aligned with my purpose, strive for long term success and change the world. Bellow some preferences.
 
 Location: Berlin <br>
 Stage: Pre-seed to Series B <br>
