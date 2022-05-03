@@ -1,5 +1,5 @@
 # Purpose
-My drive is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Continuous transformation, super flexible and fast execution for real impact.
+Time is everything! I am pace execution. Obcessed and motivated by fast executionm growth and long term potential.
 
 # About me
 It was challenging to live as a teenager away from the city. Today it is a gift to have this farm as our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
