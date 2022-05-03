@@ -1,3 +1,6 @@
+# Purpose
+My drive is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Continuous transformation, super flexible and fast execution for real impact.
+
 # About me
 It was challenging to live as a teenager away from the city. Today it is a gift to have this farm as our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
 Be confident! Life is easier when one is accepting.
@@ -28,7 +31,6 @@ Like: People, music, party, innovation, travel, sport, craziness <br>
 
 
 # Backround
-
 Graduation: Management & Industrial Engeering <br>
 Post-Graduation: Entrepeneurship & Innovation <br>
 Skills: Fast decision and execution, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
