@@ -25,7 +25,7 @@ Society is standardized and judgmental. Prejudice blocks innovation. There are n
 
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
-Like: People, music, party, take care, innovation, travel, craziness <br>
+Like: People, music, party, innovation, travel, sport, craziness <br>
 
 
 # Backround
