@@ -41,7 +41,7 @@ Last 5 years as food-tech entrepeneur:
 - reponsible for reporting, tools, algorithms, playbooks, P&L budget, sales process
 - launched 2 countries
 - hired more than 100 people
-- 400 thousand meals delivered
+- more that 400 000 meals delivered
 - more than 10 stops per hour/rider
 
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
