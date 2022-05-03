@@ -23,8 +23,6 @@ If we are not adding value, we should leave it and let new opportunities happen 
 I don't see myself in everything that happens there, but inside of Berghain you can live with openness and freedom.<br>
 Society is standardized and judgmental. Prejudice blocks innovation. There are no formats for success! 
 
-My drive is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Continuous transformation, super flexible and fast execution for real impact.
-
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
 Like: People, music, party, innovation, travel, sport, craziness <br>
