@@ -8,7 +8,7 @@ Humans are unique and they can change everything!
 My mother had cancer. I was not prepared!<br>
 The bigger the problem, the more important it is to follow the process, focus, be creative, believe and hope.
 
-My start-up made me understand the word overcoming.<br>
+My start-up made me understand the word "overcoming".<br>
 We can do more than what we rationally expect. Believe!
 
 Traveling alone allowed me to delve deeper and understand what I really feel and learn much about myself.<br>
@@ -18,7 +18,7 @@ My startup pivoted and shifted to a different strategy. I felt this demanded a d
 If we are not adding value, we should leave it and let new opportunities happen for everyone! Accept that things change over time.
 
 I don't see myself in everything that happens there, but inside of Berghain you can live with openness and freedom.<br>
-Society is standardized and judgmental. Preconception blocks innovation. There are no formats for success! 
+Society is standardized and judgmental. Prejudice blocks innovation. There are no formats for success! 
 
 My drive is peace, freedom, dream, transparency, human, learning, pace and superfast progress. Time is everything. If I invest time on it, it's because I really believe on the long term potential. Best of, more flexible and fast execution for real impact and transformation.
 
