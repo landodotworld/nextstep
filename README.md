@@ -14,7 +14,7 @@ We can do more than what we rationally expect. Believe!
 Traveling alone allowed me to delve deeper and understand what I really feel and learn much about myself.<br>
 First, find the real source of the pain, the real problem and then solve it!
 
-I realized that my start-up was not going down a path that suited my interests at a given time. <br>
+My startup to pivoted and shifted to a different strategy. I felt this demands a different kind of leadership with interests different than mine. <br>
 If we are not adding value, we should leave it and let new opportunities happen for everyone! Accept that things change over time.
 
 I don't see myself in everything that happens there, but inside of Berghain you can live with openness and freedom.<br>
