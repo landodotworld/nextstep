@@ -8,7 +8,7 @@ Humans are unique and they can change everything!
 My mother had cancer. I was not prepared!<br>
 The bigger the problem, the more important it is to follow the process, focus, be creative, believe and hope.
 
-Making my start-up made me understand the word overcoming.<br>
+My start-up made me understand the word overcoming.<br>
 We can do more than what we rationally expect. Believe!
 
 Traveling alone allowed me to delve deeper and understand what I really feel and learn much about myself.<br>
