@@ -47,7 +47,7 @@ Last 5 years as food-tech entrepeneur:
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
 
 # Looking for
-Environments aligned with my purpose, striving for long term success and change the world. Bellow some preferences.
+Environments aligned with my purpose, striving for long term success. Bellow some preferences.
 
 Location: Berlin <br>
 Stage: Pre-seed to Series B <br>
