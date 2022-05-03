@@ -37,7 +37,7 @@ Experience: >10 years.
 
 Last 5 years as food-tech entrepeneur:
 - raised more that 4m€ from more than 15 investors (vcs and angels) 
-- managing directly bizops, operations, supply, sales, customer support
+- managed directly bizops, operations, supply, sales, customer support
 - reponsible for reporting, tools, algorithms, playbooks, P&L budget, sales process
 - launched 2 countries
 - hired more than 100 people
