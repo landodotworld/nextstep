@@ -32,8 +32,15 @@ Like: People, music, party, innovation, travel, sport, craziness <br>
 Graduation: Management & Industrial Engeering <br>
 Post-Graduation: Entrepeneurship & Innovation <br>
 Skills: Faster, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
-Experience: >10 years. Last 5 years as food-tech entrepeneur (raised >4m€, >40 people, launched 2 countries) <br>
 Expertise: Operations, Leadership, Data, Business Strategy, Pace Execution
+
+Experience: >10 years. Last 5 years as food-tech entrepeneur
+- raised more that 4m€ from more than 15 investors (vcs and angels) 
+- launched 2 countries
+- hired more than 100 people for HQ
+- 400 thousand meals delivered
+- 
+
 
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
 
