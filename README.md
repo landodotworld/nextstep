@@ -1,5 +1,5 @@
 # Purpose
-Time is everything! I am pace execution. Motivated by fast execution, flexibility, real transformation, growth and long term potential.
+Time is everything! I am pace execution. Motivated by speed, flexibility, real transformation, growth and long term potential.
 
 # About me
 It was challenging to live as a teenager away from the city. Today it is a gift to have this farm as our family <a href="https://www.instagram.com/epicoshouse/">life project.</a> <br>
