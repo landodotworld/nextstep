@@ -25,6 +25,10 @@ My purpose is peace, freedom, dream, transparency, human, learning, pace and sup
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
 Like: People, music, party, innovation, travel, sport, craziness <br>
+
+
+# Backround
+
 Graduation: Management & Industrial Engeering <br>
 Post-Graduation: Entrepeneurship & Innovation <br>
 Skills: Faster, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
