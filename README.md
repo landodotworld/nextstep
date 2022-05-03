@@ -32,7 +32,7 @@ Like: People, music, party, innovation, travel, sport, craziness <br>
 Graduation: Management & Industrial Engeering <br>
 Post-Graduation: Entrepeneurship & Innovation <br>
 Skills: Fast decision and execution, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
-Expertise: Leadership, Operations,  Data, Business Strategy <br>
+Expertise: Leadership, Strategy, Operations, Data  <br>
 Experience: >10 years. 
 
 Last 5 years as food-tech entrepeneur:
