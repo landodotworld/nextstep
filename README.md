@@ -50,7 +50,7 @@ More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linke
 Fast growth companies with global and long term potential. Bellow some preferences.
 
 Location: Berlin <br>
-Stage: Pre-seed to Series B <br>
+Stage: Seed to Series B <br>
 Markets: Germany & US <br>
 Type: Software, Web3, E-commerce, Markeplaces <br>
 
