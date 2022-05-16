@@ -70,8 +70,6 @@ CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
 <a href="https://www.linkedin.com/in/humbertoayrespereira/">Humberto Ayres Pereira</a> <br>
 Co Founder & CEO of Rows.com
 
-<a href="https://www.linkedin.com/in/giovanni-lavra-12b40457/">Giovanni Lavra</a> <br>
-COO at Uniplaces
 
 
 
