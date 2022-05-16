@@ -26,7 +26,7 @@ Society is standardized and judgmental. Prejudice blocks innovation. There are n
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
 Love: People, music, party, innovation, travel, sport, craziness <br>
-Keywords: Dream, disrupt, fast, timming 
+Keywords: Dream, disrupt, fast, fit, timming 
 
 # Backround
 Graduation: Management & Industrial Engeering <br>
