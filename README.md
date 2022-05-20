@@ -71,6 +71,10 @@ CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
 Co Founder & CEO of Rows.com
 
 
+<a href="https://www.linkedin.com/in/giovanni-lavra-12b40457/">Giovanni Lavra</a> <br>
+COO of Uniplaces.com
+
+
 
 
 # Lets grow
