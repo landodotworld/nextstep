@@ -57,24 +57,29 @@ Type: Software, Web3, E-commerce, Markeplaces <br>
 # Know me
 You can ask them anything you want about me.
 
-<a href="https://www.linkedin.com/in/claudia-almeidasilva/">Cláudia Almeida e Silva</a> <br>
-Former Fnac Southern Europe CEO | Board Member at Carrefour <br>
-
-<a href="https://www.linkedin.com/in/mariapvillasboas//">Maria Villas Boas</a> <br>
-Head of Portfolio @ Shilling.vc
-
-
-<a href="https://www.linkedin.com/in/enriqueapariciobolivar/">Enrique Aparicio Bolívar</a> <br>
-CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
-
-<a href="https://www.linkedin.com/in/humbertoayrespereira/">Humberto Ayres Pereira</a> <br>
-Co Founder & CEO of Rows.com
 
 <a href="https://www.linkedin.com/in/andrejordao/">André Jordão</a> <br>
 Co Founder & CEO of Barkyn.com <br>
 
+<a href="https://www.linkedin.com/in/claudia-almeidasilva/">Cláudia Almeida e Silva</a> <br>
+Former Fnac Southern Europe CEO | Board Member at Carrefour <br>
+
+<a href="https://www.linkedin.com/in/enriqueapariciobolivar/">Enrique Aparicio Bolívar</a> <br>
+CEO at Ysabel Mora | Top100 Economic Leaders for Tomorrow
+
+
+
+
 <a href="https://www.linkedin.com/in/giovanni-lavra-12b40457/">Giovanni Lavra</a> <br>
 COO of Uniplaces.com
+
+<a href="https://www.linkedin.com/in/humbertoayrespereira/">Humberto Ayres Pereira</a> <br>
+Co Founder & CEO of Rows.com
+
+
+<a href="https://www.linkedin.com/in/mariapvillasboas//">Maria Villas Boas</a> <br>
+Head of Portfolio @ Shilling.vc
+
 
 
 
