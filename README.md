@@ -85,7 +85,7 @@ Head of Portfolio @ Shilling.vc
 
 
 # Lets grow
-Email: iam@lando.world <br>
+Email: hilandoworld@gmail.com <br>
 Phone: +351 916240718 <br>
 Linkedin: https://www.linkedin.com/in/landodotworld/
 
