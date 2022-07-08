@@ -26,19 +26,19 @@ Society is standardized and judgmental. Prejudice blocks innovation. There are n
 Name: Orlando Jorge Carmo Lopes <br> 
 Age: 32 <br>
 Love: People, music, party, innovation, travel, sport, craziness <br>
-Keywords: Dream, love, disrupt, fast, timming, together
+Keywords: Dream, love, disrupt, fast, timing, together
 
 # Backround
-Graduation: Management & Industrial Engeering <br>
-Post-Graduation: Entrepeneurship & Innovation <br>
+Graduation: Management & Industrial Engineering <br>
+Post-Graduation: Entrepreneurship & Innovation <br>
 Skills: Fast decision and execution, Problem Solving, Strategic Thinking, Persuasion and Delegating. <br>
 Expertise: Leadership, Strategy, Operations, Data  <br>
 Experience: >10 years. 
 
-Last 5 years as food-tech entrepeneur:
+Last 5 years as food-tech entrepreneur:
 - raised more than 4m€ from more than 15 investors (vcs and angels) 
 - managed directly bizops, operations, supply, sales, customer support
-- reponsible for reporting, tools, algorithms, playbooks, P&L budget, sales process
+- responsible for reporting, tools, algorithms, playbooks, P&L budget, sales process
 - launched 2 countries
 - hired more than 100 people
 - more that 400 000 meals delivered
@@ -47,12 +47,12 @@ Last 5 years as food-tech entrepeneur:
 More info <a href="https://www.linkedin.com/in/landodotworld/">here</a> on linkedin profile.
 
 # Looking for
-Fast growth companies with global and long term potential. Bellow some preferences.
+Fast growth companies with global and long-term potential. Bellow some preferences.
 
 Location: Berlin <br>
 Stage: Seed to Series B <br>
 Markets: Germany & US <br>
-Type: Software, Web3, E-commerce, Markeplaces <br>
+Type: Software, Web3, E-commerce, Marketplaces <br>
 
 # Know me
 You can ask them anything you want about me.
